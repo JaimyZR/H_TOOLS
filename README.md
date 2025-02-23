@@ -20,4 +20,4 @@
 
 ---
 
-For more information, contact me via Discord @JaimyZR
+For more information, contact me via a Discord ticket on HackNation_ @JaimyZR https://discord.com/invite/PQs9fCN8zw
